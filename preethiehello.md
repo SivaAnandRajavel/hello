@@ -1,2 +1,2 @@
 hi this is preethie
-mu hubby is siva
+my hubby is siva
